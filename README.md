@@ -1,1 +1,0 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=30&pause=1000&color=F71C1C&center=true&random=false&width=435&lines=Mr.SUMON+ROY;Dyno-cherge%E2%84%A2)](https://git.io/typing-svg)
