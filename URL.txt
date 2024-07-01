@@ -1,1 +1,1 @@
-https://www.facebook.com/login/
+'https://m.facebook.com/login/device-based/login/async/'
